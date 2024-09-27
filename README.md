@@ -18,3 +18,4 @@
 
 ### Resutados
 
+![Screenshot_1](https://github.com/user-attachments/assets/85bc5134-6fea-44b9-913c-93fe5d5cc53b)
